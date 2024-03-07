@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @rich77889
+- 👋 Hi, I’m @InscribedWar
 - 👀 I’m interested in Development or 3D design software such as Blender.
 - 🌱 I’m currently learning Biology in college
 - 💞️ I’m looking to collaborate on Jobs
